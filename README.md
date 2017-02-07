@@ -1,4 +1,6 @@
 # scorpio001
 first one 
 
-hi，my twitter is @Geoffrey198song
+follow me on twitter @Geoffrey198song
+
+scorpio 001
